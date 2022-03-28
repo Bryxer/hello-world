@@ -1,1 +1,2 @@
-# hello-world, I am a furesome man! do you understand? I am the man!
+about me 
+I am bryar hemin hamasur and I am proud of how  I am now good bye...
