@@ -1,1 +1,2 @@
-# hello-world
+about me 
+I am bryar hemin hamasur and I am proud of how  I am now good bye...
